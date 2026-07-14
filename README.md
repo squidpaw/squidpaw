@@ -1,6 +1,6 @@
 ㅤㅤㅤㅤㅤㅤ<img src="https://i.ibb.co/DDwG8Kxr/Untitled918-20260714062135.png" alt="meow" width="80%"/>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=500&color=E95F36&width=435&lines=make+a+line%2C+everyone;%E3%85%A4%E3%85%A4ill+give+cakes+!!)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=500&color=E95F36&width=435&lines=make+a+line%2C+everyone;%E3%85%A4%E3%85%A4ill+give+cakes+!!)](https://git.io/typing-svg)
 ㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=yuriletsky&color=e95f36&label=party+killer!)
