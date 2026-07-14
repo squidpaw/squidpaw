@@ -5,7 +5,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=yuriletsky&color=e95f36&label=party+killer!)
 
 
-<a href="https://planetlordd.atabook.org" target="_blank">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://planetlordd.atabook.org" target="_blank">
   <img src="https://i.ibb.co/yFJzx2PK/Untitled916-20260714060931.png" alt="meow" width="15%"/>
 </a>
 <a href="https://prey.lol/@planetlord" target="_blank">
