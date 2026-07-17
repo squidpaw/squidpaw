@@ -16,3 +16,8 @@
 <a href="https://prey.lol/@planetlord" target="_blank">
    <img src="https://i.ibb.co/TMVHWMZY/Untitled916-20260714061004.png" alt="meow" width="15%"/>
 </a>
+
+<p align="center">
+<a href="https://docs.google.com/document/d/1z4ul6yPd5LIOJ1_bN6ihUblsQf5wIt-z3MdDw-2Dx3Y/edit?tab=t.0">read my callout document.</a>
+</p>
+<p align="center">
